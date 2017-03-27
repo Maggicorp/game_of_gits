@@ -7,4 +7,6 @@ Regent.  He is surely honorable and will lead a long and prosperous life.
 
 This is the end for the starks.  Or is it?
 
-It isn't! Stark went shopping and bought new pants. 
+It isn't! Stark went shopping and bought new pants.
+
+And they lived happily ever after. 
