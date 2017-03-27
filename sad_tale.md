@@ -6,3 +6,5 @@ Winterfell, Warden of the North, Hand of the King, Protector of the Realm,
 Regent.  He is surely honorable and will lead a long and prosperous life.
 
 This is the end for the starks.  Or is it?
+
+And everyone went and got a day job.
